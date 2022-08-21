@@ -1,1 +1,1 @@
-Born to win Always
+Winning is my birth right I will continue to win
